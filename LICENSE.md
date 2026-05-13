@@ -1,4 +1,4 @@
-# 
+# smart pump.fun sniper bot | buy-pressure-analysis + slippage-control offers the most advanced pump.fun sniper bot, with buy-pressure-analysis and slippage-control. Ideal for
 
 
 
